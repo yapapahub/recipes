@@ -38,4 +38,3 @@ divide dough into 5 equal balls. Roll out each ball into a 5-inch by 8-inch rect
 roll up lengthwise, pinching together seams. Pinch and form ends to resemble the end of a bone. Place loaves seam-side down on 2 greased baking sheets, allowing room for both to rise. Cover; 
 
 let rise in a warm place for 30 minutes, or until double in bulk. Brush with egg white. Bake at 400 degrees for about 30 minutes, or until crusty and golden. Remove to wire racks to cool.
-
