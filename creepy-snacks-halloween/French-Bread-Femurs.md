@@ -1,4 +1,4 @@
-Ingredients:
+**Ingredients:**
 
 2 envs. active dry yeast 1/2 cup warm water, 
 
