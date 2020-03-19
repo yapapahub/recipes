@@ -2,15 +2,15 @@
 Manicotti
 
 **Ingridients:**  
-1 pint part-skim ricotta cheese;  
-8 ounces shredded mozzarella cheese;  
-3/4 cup grated Parmesan cheese;  
-2 eggs;  
-1 teaspoon dried parsley;  
-salt to taste;  
-ground black pepper to taste;  
-1 (16 ounce) jar spaghetti sauce;  
-5 1/2 ounces manicotti pasta
+1. 1 pint part-skim ricotta cheese;  
+1. 8 ounces shredded mozzarella cheese;  
+1. 3/4 cup grated Parmesan cheese;  
+1. 2 eggs;  
+1. 1 teaspoon dried parsley;  
+1. salt to taste;  
+1. ground black pepper to taste;  
+1. 1 (16 ounce) jar spaghetti sauce;  
+1. 5 1/2 ounces manicotti pasta
 
 **Instruction:**  
 Cook manicotti in boiling water until done. Drain, and rinse with cold 
