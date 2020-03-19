@@ -1,7 +1,7 @@
 **Name:**
 Manicotti
 
-**Ingridients: **
+**Ingridients:**
 1 pint part-skim ricotta cheese; 
 8 ounces shredded mozzarella cheese; 
 3/4 cup grated Parmesan cheese; 
