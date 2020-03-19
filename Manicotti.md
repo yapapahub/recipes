@@ -9,6 +9,6 @@ for 5 minutes, then add garlic and cheese and whisk quickly, heating
 through. Stir in parsley and serve.
 
 
-- [x] Write the press release
-- [ ] Update the website
-- [ ] Contact the media
+- [x] Video
+- [ ] Image 
+- [ ] Confirm 
