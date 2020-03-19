@@ -1,5 +1,5 @@
 **Name:**  
-Manicotti
+Manicotti (676 calories)
 
 **Ingridients:**  
 1. 1 pint part-skim ricotta cheese;  
