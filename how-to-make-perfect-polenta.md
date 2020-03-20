@@ -1,1 +1,1 @@
-how-to-make-perfect-polenta
+https://eatial.com/how-to-make-perfect-polenta/

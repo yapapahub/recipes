@@ -1,1 +1,1 @@
-easy-garlic-lemon-scallops
+https://eatial.com/easy-garlic-lemon-scallops/

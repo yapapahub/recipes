@@ -1,1 +1,1 @@
-simple-beef-stroganoff
+https://eatial.com/simple-beef-stroganoff/

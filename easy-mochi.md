@@ -1,1 +1,1 @@
-easy-mochi
+https://eatial.com/easy-mochi/

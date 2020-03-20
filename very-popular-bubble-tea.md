@@ -1,1 +1,1 @@
-very-popular-bubble-tea
+https://eatial.com/very-popular-bubble-tea/
